@@ -5,7 +5,7 @@ Email Me 👉 ✉️ **atulubale347@gmail.com** For Collaboration/Project or Any
 
 - 🔭 **I’m currently working on:** Finance Project 
 - 🌱 **I’m currently learning:** AI and Software Development
-- 💬 **Ask me about:** Collaboration, Tech Support
+- 💬 **Ask me about:** Collaboration
 - 📫 **How to reach me:** atulubale347@gmail.com
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
